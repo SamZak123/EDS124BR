@@ -1,0 +1,1 @@
+[Sequences Explanation Video #1]: https://www.youtube.com/watch?v=xnjCp0qvN14
